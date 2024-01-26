@@ -2,7 +2,7 @@
 
 1.开始训练
 
-![img](https://app.yinxiang.com/FileSharing.action?hash=1/e9de4926570c339d59e76e0b45a72c99-117779)
+![img]([https://app.yinxiang.com/FileSharing.action?hash=1/e9de4926570c339d59e76e0b45a72c99-117779](https://app.yinxiang.com/FileSharing.action?hash=1/e9de4926570c339d59e76e0b45a72c99-117779))
 
 ![img](https://app.yinxiang.com/FileSharing.action?hash=1/89c63d01989b2514855b3edd315a82bc-8248)
 
